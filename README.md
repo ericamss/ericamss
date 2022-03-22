@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ericamss
+- 👀 I’m interested in network
+- 🌱 I’m currently learning world of technology
+- 📫 How to reach me through https://www.linkedin.com/in/%C3%A9rica-schuler/
